@@ -5,4 +5,4 @@
 
 ### Connect with me:
 - 🌐 Portfolio: [Coming Soon]
-- 💼 LinkedIn: [Your Profile Link]
+- 💼 LinkedIn: [www.linkedin.com/in/lucky-soni-4860ab2bb]
